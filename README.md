@@ -1,2 +1,3 @@
+![](https://64.media.tumblr.com/4223125d798ea2bfab4833e390d711e3/4fc7571dcd617d8d-ee/s400x600/2009e61995344507bbbd4e847a88e51f6ef6c3bc.gifv) 
 ![](https://media.discordapp.net/attachments/1312920523034071094/1432412417627000843/githubosta.png?ex=6900f585&is=68ffa405&hm=798b5037b85e19f2c6c612ed60ad787a55fff94cd7215a59b04991084828bc2a&=&format=webp&quality=lossless&width=779&height=968)
-![](https://64.media.tumblr.com/2a2ce3c2ad6ccfcc68a5d19cd3113158/a31d88eb88d4582e-1f/s100x200/fd013929d3f35def1001df0ef34196bbaa37ab2a.gifv) ![](https://64.media.tumblr.com/cb8cb3fb9cfb63cfb19bb62e5d6c76c4/b633c28a874dcc10-86/s100x200/28199c20ea852cc499e204eaf32aa3cee4d4eff2.pnj) 
+![](https://64.media.tumblr.com/3d46e60f5e7b3f71ef6f44f79121ee13/4db3c6b332cf1d15-9e/s100x200/aceec7dbbdf18daf3c85247343bad7ece928f9a9.pnj) ᵔᴗᵔ i dont car 
