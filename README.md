@@ -1,2 +1,2 @@
 
-![](https://adriansblinkiecollection.neocities.org/stamps/e36.png) eu sou a grande cientista francesa que viaja no tempo
+![]((https://dividers.crd.co/assets/images/gallery02/df6380ce.png?v=05d33f91)) 
