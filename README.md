@@ -4,4 +4,4 @@
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![](https://i.imgur.com/85L8QfT.jpeg)
 ㅤㅤㅤ
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤninaㅤㅤㅤ/ㅤㅤㅤmarie
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤninaㅤㅤㅤ![](https://i.imgur.com/XLFPO8K.gif)ㅤㅤㅤmarie ര  ̫ ര
